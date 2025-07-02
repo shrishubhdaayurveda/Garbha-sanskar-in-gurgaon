@@ -1,4 +1,4 @@
-# Garbha-sanskar-in-gurgaon
+# Garbha Sanskar In Gurgaon
 As you know, becoming a parent is perhaps one of the deepest experiences in life. When pregnant, expecting parents look for ways to heal the physical health of their child, as well as their emotional and mental selves. That is where Garbha Sanskar steps in—a centuries-old Indian tradition with renewed life in today's urban metropolis of Gurgaon.
 A tradition in itself, Garbha Sanskar is an integrated prenatal education system that is said to shape the development of the unborn child in a positive manner by means of music, meditation, reading, nutrition, and bonding. With increasing awareness, parents are now looking to Garbha Sanskar in Gurgaon as a means to establish a loving environment even before the baby arrives.
 
